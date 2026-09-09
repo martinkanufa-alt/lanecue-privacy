@@ -4,7 +4,7 @@ Need help with LaneCue?
 
 For questions, problems, feedback or support, please contact:
 
-**Email:** martinkanu.fa@gmail.com
+**Email:** martinka.nufa@hotmail.com
 
 LaneCue is a driving support app designed to provide guidance for learners and nervous drivers.
 
